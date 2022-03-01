@@ -1,1 +1,1 @@
-# STUDIVATION.com
+https://STUDIVATION.com
